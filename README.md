@@ -1,4 +1,5 @@
-# Seongchong Park
+# Seongchong Park, Ph.D
+Principal Research Scientist  
 Division of Physical Metrology  
 Korea Research Institute of Standards and Science 
 
